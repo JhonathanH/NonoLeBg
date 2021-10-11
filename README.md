@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NonoLeBg
+- 👀 Je suis passioner par les hebergeurs ! :) 
+- 🌱 Je travaillse aussi sur du custom pterodactyl
+- 💞️ Je suis aussi directeur de calyhost.fr
+- 📫Vous pouvez me contacter sur discord avec mon pseudo : Jhonathan.H#0001
